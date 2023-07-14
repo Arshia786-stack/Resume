@@ -1,1 +1,1 @@
-# Resume
+Welcome to my digital resume repository! This is where you'll find my up-to-date resume, showcasing my skills, experiences, and achievements as a tech enthusiast. Feel free to explore and get to know more about my professional background and expertise. Let's connect and collaborate on exciting opportunities!
